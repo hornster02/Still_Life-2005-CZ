@@ -1,3 +1,3 @@
-2021-05 STEAM
+STEAM (2021-05)
 
-https://github.com/hornster02/Still_Life-2005-CZ/raw/main/Still_Life_2005_cestina.rar
+Velikost 3MB https://github.com/hornster02/Still_Life-2005-CZ/raw/main/Still_Life_2005_cestina.rar
